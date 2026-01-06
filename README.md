@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 I'm Bhartesh_Patil
 Improving project coordination, client communication, and execution<br>Interested in planning, coordination, and business–tech collaboration<br>Seeking real-world exposure in project management and sales workflows<br>Learning project management, leadership, and tech-enabled execution<br>Comfortable with team handling, communication, and delivery<br>Prefer leading discussions over coding, while understanding both sides
 
 
